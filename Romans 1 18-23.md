@@ -1,5 +1,3 @@
-### God’s Wrath Against Sinful Humanity
-
 18 The wrath of God is being revealed from heaven against all the godlessness and wickedness of people, who suppress the truth by their wickedness, 19 since what may be known about God is plain to them, because God has made it plain to them. 20 For since the creation of the world God’s invisible qualities—his eternal power and divine nature—have been clearly seen, being understood from what has been made, so that people are without excuse.
 
 21 For although they knew God, they neither glorified him as God nor gave thanks to him, but their thinking became futile and their foolish hearts were darkened. 22 Although they claimed to be wise, they became fools 23 and exchanged the glory of the immortal God for images made to look like a mortal human being and birds and animals and reptiles.

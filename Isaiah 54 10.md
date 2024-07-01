@@ -1,4 +1,3 @@
-Isaiah 54:10 (ESV)
 For the mountains may depart 
   and the hills be removed, 
   **but my steadfast love shall not depart from you, 

@@ -1,4 +1,3 @@
-Ephesians 3:14–19 (ESV): 
 14 For this reason I bow my knees before the Father, 
 15 from whom every family in heaven and on earth is named, 
 16 that according to the riches of his glory he may grant you to be strengthened with power through his Spirit in your inner being, 
