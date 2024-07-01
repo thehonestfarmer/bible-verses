@@ -1,0 +1,1 @@
+There is more joy in heaven over one sinner who repents, than over 99 righteous that need no repentance

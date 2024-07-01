@@ -1,0 +1,1 @@
+A gentle answer turns away wrath, but a harsh word stirs up anger

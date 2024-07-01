@@ -1,0 +1,1 @@
+Be of sober spirit, be on the alert. Your adversary, the devil, prowls about like a roaring lion, seeking someone to devour

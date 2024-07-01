@@ -1,0 +1,1 @@
+You adulterous people, don’t you know that friendship with the world means enmity against God? Therefore, anyoneWhoever wishes to be a friend of the world makes himself an enemy of God.

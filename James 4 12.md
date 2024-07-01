@@ -1,0 +1,1 @@
+There is only one Lawgiver and Judge, the one who is able to save and destroy; but who are you to judge your neighbor?

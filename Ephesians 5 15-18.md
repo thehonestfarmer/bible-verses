@@ -1,0 +1,3 @@
+“Be very careful, then, how you live—not as unwise but as wise, making the most of every opportunity, because the days are evil. Therefore do not be foolish, but understand what the Lord’s will is. Do not get drunk on wine, which leads to debauchery. Instead, be filled with the Spirit, speaking to one another with psalms, hymns, and songs from the Spirit. Sing and make music from your heart to the Lord,”
+‭‭Ephesians‬ ‭5‬:‭15‬-‭19‬ ‭NIV‬‬
+https://bible.com/bible/111/eph.5.15-19.NIV

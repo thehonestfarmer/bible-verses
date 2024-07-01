@@ -1,0 +1,1 @@
+For I am sure that neither death nor life, nor angels nor rulers, nor things present nor things to come, nor powers, 39 nor height nor depth, nor anything else in all creation, will be able to separate us from the love of God in Christ Jesus our Lord.

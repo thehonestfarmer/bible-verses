@@ -1,0 +1,1 @@
+There is a way which seems right to man, but its end is the way of death
